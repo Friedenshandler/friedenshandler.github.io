@@ -13,7 +13,7 @@ studying **combined arms warfare** under the generalship of Gustavus Adolphus. O
 
 ## Educational history
 
-I was born in Karlskrona, Sweden in 2000, and attended primary school in Malmö. I moved to the US just before 9th grade, and attended Central High School, graduating with honors. I am currently pursuing a Bachelors of Arts degree at Swarthmore College, and plan to pursue graduate studies at the same college.
+I was born in Karlskrona, Sweden in 2000, and attended primary school in Malmö. I moved to the US just before 9th grade, and attended Central High School in Philadelphia, graduating with honors. I am currently pursuing a Bachelors of Arts degree at Swarthmore College, and plan to pursue graduate studies at the same college.
 
 ## Contact me:
 
