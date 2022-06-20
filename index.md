@@ -5,7 +5,7 @@ title: Felix Strömberg
 ## Introduction
 
 <img src="felix.png"
-     style="align: right; width: 200px; height: 400px" />
+     style="align: right; width: 200px; height: 300px" />
     
 Hi, I'm Felix! I am currently a 3rd-year student at Swarthmore College, studying history (major) and anthropology (minor). When I'm not busy reading, I like to cook, hike in the scenic Pennsylvania countryside, and play video games.
 
